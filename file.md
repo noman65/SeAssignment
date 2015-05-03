@@ -1,0 +1,2 @@
+Fast NU
+Peshawar Campus
